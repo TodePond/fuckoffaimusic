@@ -1,0 +1,17 @@
+User-Agent: GPTBot
+User-Agent: ChatGPT-User
+User-Agent: ClaudeBot
+User-Agent: Claude-SearchBot
+User-Agent: Claude-User
+User-Agent: Facebookbot
+User-Agent: Meta-ExternalAgent
+User-Agent: Meta-ExternalFetcher
+User-Agent: PerplexityBot
+User-Agent: Perplexity‑User
+User-Agent: TikTokSpider
+User-Agent: Bytespider
+User-Agent: Amazonbot
+
+Disallow: /
+DisallowAITraining: /
+
