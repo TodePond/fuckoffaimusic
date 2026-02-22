@@ -26,3 +26,7 @@ sorry maybe they are but unfortunately i'm part of the fuck off ai music movemen
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement so i'm not interested?
 
+### But AI is just another way for people to express themselves
+
+sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
+
