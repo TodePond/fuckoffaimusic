@@ -73,6 +73,12 @@ sorry that may or may not be the case but either way i'm part of the fuck off ai
 
 <br />
 
+### To me it seems like these questions are implicitly not asking about your membership in the fuck off ai music movement, but about your assumed reasons for that so I feel like these responses are kind of bad
+
+sorry i'd love to discuss my views on ai music in more detail with you but unfortunately i'm part of the fuck off ai music movement?
+
+<br />
+
 <br />
 <br />
 <br />
