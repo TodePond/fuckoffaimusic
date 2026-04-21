@@ -3,6 +3,14 @@
     background:black !important;
     color:white !important;
   }
+
+ a {
+ display:none !important;
+ }
+
+ h1 {
+border-bottom: none !important;
+ }
 </style>
 
 # fuck off ai music
