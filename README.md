@@ -45,11 +45,11 @@ sorry that may or may not be the case but either way i'm part of the fuck off ai
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
 
-## Will you perform at my AI event?
+### Will you perform at my AI event?
 
 sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
 
-## But isn't it good to perform at an AI event so that you can use it as a platform to criticize AI? 
+### But isn't it good to perform at an AI event so that you can use it as a platform to criticize AI? 
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
 
