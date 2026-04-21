@@ -1,7 +1,7 @@
 <style>
   * {
-    background:black;
-    color:white;
+    background:black !important;
+    color:white !important;
   }
 </style>
 
