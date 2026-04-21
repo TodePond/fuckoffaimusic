@@ -55,7 +55,7 @@ sorry that may or may not be the case but either way i'm part of the fuck off ai
 
 <br />
 
-## Making good music is still hard, even when you use AI
+### Making good music is still hard, even when you use AI
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
 
