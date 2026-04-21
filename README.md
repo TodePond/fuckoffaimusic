@@ -1,3 +1,10 @@
+<style>
+  * {
+    background:black;
+    color:white;
+  }
+</style>
+
 # fuck off ai music
 
 welcome to the fuck off ai music movement
@@ -27,6 +34,14 @@ sorry maybe they are but unfortunately i'm part of the fuck off ai music movemen
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement so i'm not interested?
 
 ### But AI is just another way for people to express themselves
+
+sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
+
+## Will you perform at my AI event?
+
+sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
+
+## But isn't it good to perform at an AI event so that you can use it as a platform to criticize AI? 
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
 
