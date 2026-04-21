@@ -29,29 +29,49 @@ you are welcome to join if you’d like
 
 sorry i'd love to but i can't unfortunately because i'm part of the fuck off ai music movement?
 
+<br />
+
 ### But don't you think that some AI music can be good enough to listen to anyway? 
 
 sorry i'd love to deeply consider this topic with you but unfortunately i'm part of the fuck off ai music movement so i won't?
+
+<br />
 
 ### What about the people doing interesting things with AI in their music? Some people are doing interesting things so isn't it worth giving those ones a chance?
 
 sorry maybe they are but unfortunately i'm part of the fuck off ai music movement so count me out?
 
+<br />
+
 ### Haven't you considered that AI is just another tool that artists can use? 
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement so i'm not interested?
+
+<br />
 
 ### But AI is just another way for people to express themselves
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
 
+<br />
+
+## Making good music is still hard, even when you use AI
+
+sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
+
+<br />
+
 ### Will you perform at my AI event?
 
 sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
 
+<br />
+
 ### But isn't it good to perform at an AI event so that you can use it as a platform to criticize AI? 
 
 sorry that may or may not be the case but either way i'm part of the fuck off ai music movement?
+
+<br />
 
 <br />
 <br />
