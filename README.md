@@ -83,6 +83,10 @@ sorry i'd love to discuss my views on ai music in more detail with you but unfor
 
 sorry i'd love to answer differently but unfortunately i'm part of the fuck off ai music movement?
 
+### Can you at least elaborate? 
+
+sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
+
 <br />
 
 <br />
