@@ -83,9 +83,17 @@ sorry i'd love to discuss my views on ai music in more detail with you but unfor
 
 sorry i'd love to answer differently but unfortunately i'm part of the fuck off ai music movement?
 
+<br/>
+
 ### Can you at least elaborate? 
 
 sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
+
+<br/>
+
+### You could make this website a lot more interesting by providing a bunch of resources on how to recognize AI generated music, or hosting a wall of shame of artists who have tried to sell their AI generated music of as something they made
+
+sorry i'd love to add lots of information about ai music but unfortunately i'm part of the fuck off ai music movement?
 
 <br />
 
