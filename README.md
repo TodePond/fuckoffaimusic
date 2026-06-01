@@ -79,6 +79,12 @@ sorry i'd love to discuss my views on ai music in more detail with you but unfor
 
 <br />
 
+### I'm not sure it's appropriate to direct this at people who are talking in good faith
+
+sorry i'd love to answer differently but unfortunately i'm part of the fuck off ai music movement?
+
+<br />
+
 <br />
 <br />
 <br />
