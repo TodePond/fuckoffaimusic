@@ -95,6 +95,12 @@ sorry i'd love to but unfortunately i'm part of the fuck off ai music movement?
 
 sorry i'd love to add lots of information about ai music but unfortunately i'm part of the fuck off ai music movement?
 
+<br>
+
+###  I think once you have a good grasp of understanding the project which will take a long time then maybe using LLMs to help with development might not totally be a bad thing?
+
+sorry i'd love to consider this with you but unfortunately i'm part of the fuck off ai music movement?
+
 <br />
 
 <br />
