@@ -103,6 +103,10 @@ sorry i'd love to consider this with you but unfortunately i'm part of the fuck 
 
 <br />
 
+### What about local models? I think local models are really cool
+
+sorry that may or may not be the case but unfortunately i'm part of the fuck off ai music movement?
+
 <br />
 <br />
 <br />
