@@ -107,6 +107,10 @@ sorry i'd love to consider this with you but unfortunately i'm part of the fuck 
 
 sorry that may or may not be the case but unfortunately i'm part of the fuck off ai music movement?
 
+### My project would not exist if I hadn't used LLMs to make it
+
+sorry that may or may not be the case but unfortunately i'm part of the fuck off ai music movement? 
+
 <br />
 <br />
 <br />
